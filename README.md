@@ -6,3 +6,5 @@ portifolio cagado
 uma bosta
  autopromocao a gente ve por aqui
 preciso de referencias canadenses
+
+I will win

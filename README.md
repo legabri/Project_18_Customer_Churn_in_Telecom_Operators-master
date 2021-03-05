@@ -17,3 +17,4 @@ se segura
 
 
 
+hoje foi loss

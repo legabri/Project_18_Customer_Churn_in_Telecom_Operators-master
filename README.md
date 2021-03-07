@@ -21,3 +21,4 @@ hoje foi loss
 
 
 .
+Essa semana será 500 por dia de gain!!!

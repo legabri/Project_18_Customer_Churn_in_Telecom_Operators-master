@@ -22,4 +22,10 @@ hoje foi loss
 
 .
 Essa semana será 500 por dia de gain!!!
+
+
+mercado dificil hoje 8mar21
+
+tirar o maximo desses portifolios
+menos juizo de valor
 .

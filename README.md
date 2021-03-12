@@ -29,3 +29,6 @@ mercado dificil hoje 8mar21
 tirar o maximo desses portifolios
 menos juizo de valor
 .
+
+
+

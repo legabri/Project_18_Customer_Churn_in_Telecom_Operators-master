@@ -30,5 +30,5 @@ tirar o maximo desses portifolios
 menos juizo de valor
 .
 
-
+    
 

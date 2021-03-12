@@ -20,7 +20,7 @@ se segura
 hoje foi loss
 
 
-.
+.lalamd
 Essa semana será 500 por dia de gain!!!
 
 
